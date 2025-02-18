@@ -13,7 +13,7 @@ I specialize in **data analysis, visualization, and machine learning techniques*
 
 **Let's Connect!**
 
-Email: scarzellalauren@gmail.com
+scarzellalauren@gmail.com
 
 [LinkedIn](https://www.linkedin.com/in/laurenscarzella/)
 
